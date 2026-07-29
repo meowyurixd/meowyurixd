@@ -7,16 +7,44 @@
 <details>
   <summary><b>dnis</b></summary>
   <p> nsfw , homo ,
-             maps , pdfs
+             maps 
+    
+    
+  pdfs
              zoos 
-             ice/trump suporters , rude /toxic / trollers .</p>
+             ice/trump suporters
+    , rude /toxic / trollers .</p>
 </details>
 
 
 <details>
-  <summary><b>dnis</b></summary>
-  <p> nsfw , homo ,
-             maps , pdfs
-             zoos 
-             ice/trump suporters , rude /toxic / trollers .</p>
+  <summary><b>about me</b></summary>
+  <p> I'm 15
+
+
+
+    
+  trans female .
+
+
+    
+  taken by two people 
+
+
+  I'm usually a big cuddler ! 
+
+
+
+  c+H is always acceptable around me
+  </p>
 </details>
+
+<details>
+  <summary><b>links?</b></summary>
+  <p>catmeowx_ on discord ! 
+    
+always open to DMS and making new friends .</p>
+</details>
+
+<img width="736" height="171" alt="this user is a lesbian" src="https://github.com/user-attachments/assets/46f0012b-b4ef-4736-a3ee-8f1e58575c06" />
+
