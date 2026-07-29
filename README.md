@@ -1,25 +1,22 @@
 (<img width="589" height="245" alt="Home _ X" src="https://github.com/user-attachments/assets/fb000f56-6af7-45fd-bafd-135f9e846282" />
 
 --------------------
-# ˚.⋆꒰১ ໒꒱⋆.˚   About Me:
-my name is Stella  or chiyo !<br>I'm really big on c+h and a cuddle bug <br>  
-im a minor        
-            *I'm mostly offtab  watching yt / on call / texting*
+<img width="150" height="20" alt="0023-trans-pride" src="https://github.com/user-attachments/assets/f80e915e-7142-431b-9aa1-bdc1aa8a114a" />
 
 
-
-mostly really talktive when ur close with me !! 
-
-
-
-
-
-strawpage has more info
-
+<details>
+  <summary><b>dnis</b></summary>
+  <p> nsfw , homo ,
+             maps , pdfs
+             zoos 
+             ice/trump suporters , rude /toxic / trollers .</p>
+</details>
 
 
-
-
-
-            
-<img width="498" height="498" alt="87186942777754853" src="https://github.com/user-attachments/assets/c862963f-d1ee-4105-b2f5-597d83c76dea" />
+<details>
+  <summary><b>dnis</b></summary>
+  <p> nsfw , homo ,
+             maps , pdfs
+             zoos 
+             ice/trump suporters , rude /toxic / trollers .</p>
+</details>
