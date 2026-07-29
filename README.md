@@ -19,7 +19,12 @@
 
 <details>
   <summary><b>about me</b></summary>
-  <p> I'm 15
+  <p> 
+    chiyo or Stella or cat !
+
+
+    
+  I'm 15
 
 
 
@@ -28,7 +33,7 @@
 
 
     
-  taken by two people 
+  taken by two people  ( my wives )
 
 
   I'm usually a big cuddler ! 
@@ -46,5 +51,37 @@
 always open to DMS and making new friends .</p>
 </details>
 
-<img width="736" height="171" alt="this user is a lesbian" src="https://github.com/user-attachments/assets/46f0012b-b4ef-4736-a3ee-8f1e58575c06" />
 
+
+<details>
+  <summary><b>Friends!!</b></summary>
+  <p>jay
+
+
+  jason
+
+
+  sam
+
+
+  val
+
+  thedawg
+
+
+  timmy
+
+  nerdizaki
+  </p></details>
+
+
+
+
+
+
+
+<img width="150" height="20" alt="0072-lesbian" src="https://github.com/user-attachments/assets/9bce3011-df73-4e2a-93a9-3f91b229dae5" />
+
+
+
+<img width="150" height="20" alt="0032-coffeecup" src="https://github.com/user-attachments/assets/633030f7-46bd-4e46-80b9-95e6cdf4cacb" />
