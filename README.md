@@ -41,6 +41,13 @@
 
 
   c+H is always acceptable around me
+
+
+  always offtab so whisper if u need anything from me!
+
+
+  
+  or u wanna be friends 
   </p>
 </details>
 
