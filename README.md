@@ -33,7 +33,7 @@
 
 
     
-  taken by two people  ( my wives )
+  ADHd & autism !
 
 
   I'm usually a big cuddler ! 
@@ -61,24 +61,33 @@ always open to DMS and making new friends .</p>
 
 
 <details>
-  <summary><b>Friends!!</b></summary>
-  <p>jay
+  <summary><b>fandoms!!</b></summary>
+  <p>Nullscape
 
 
-  jason
+  mlp
 
 
-  sam
+  regretevator
 
 
-  val
+  state smp
 
-  thedawg
+  forskaen
 
 
-  timmy
+  animal hospital
 
-  nerdizaki
+  class of 09
+
+
+  tadc
+
+
+  kog 
+
+
+  there more if u get to know me : 3
   </p></details>
 
 
